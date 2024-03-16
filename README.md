@@ -1,0 +1,2 @@
+# COBOLATLUNCHBREAKJOKESV0
+A Really not smart idea[TM]
